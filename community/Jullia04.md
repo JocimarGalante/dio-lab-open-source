@@ -22,4 +22,5 @@ Adoraria me conectar com outros entusiastas e aprendizes da área de tecnologia.
 Mal posso esperar para compartilhar sucessos, enfrentar desafios e progredir nessa emocionante jornada em tecnologia.
 
 Saudações,
+
 Jullia Manhães
